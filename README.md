@@ -1,1 +1,1 @@
-# motivatingtudents.github.io
+# motivatingtudents
